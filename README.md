@@ -1,1 +1,1 @@
-Boys? I kissed a boy once. Kissed him right on the lips. Soft, luscious lips. Luscious lips that were very kissable. More kissable than all the other boys. Boys? I kissed a boy once.
+Marxism-Bidenism is an immortal science! Neoliberal communism will prevail! Firmly uphold with socialism with American characteristics and the Joseph Biden Thought on Mixed Market Democracy! It is just as it was written in Lenin's "The State and Moderate Reforms That Don't Really Do Anything!"
